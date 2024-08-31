@@ -1,0 +1,8 @@
+---
+{"dg-publish":true,"permalink":"/the-explorer-s-league/resources/"}
+---
+
+
+The Explorer's League has substantial resources from its various patrons. It is well respected among the high circles of society in Anbaerin, and in many other pinnacles of civilization around the globe -- the world is round, prove me wrong. As such, it does not necessarily want for money. Expeditions are not cheap, however, so careful planning is required, but access is the scarcer resource in most situations. Access to information, access to expedition sites, access to modes of transportation. The problem to some extent is that the Explorer's League is too big for its fleets, and requires the use of charter vessels, or caravans. Air ships are seldom willing to go where the League needs them to, either. And they've become something of a competitor in the game of finders keepers, as even though the Lorekeepers do use the services of the League -- and some would say abuse -- they like to keep things in house. As they see League members as little more than glory hounds, and their aims are more "noble" -- says they.
+
+But to the League's credit, their fleet of ships boasts close to one hundred, and they have a robust number of carts and wagons for carrying loads and equipment across land. Some of the more intrepid Explorers have tamed exotic flying beasts that they use for travel. The most common among these would by Wyverns, but they are ill-tempered and not well suited for new riders. However, many of the other options such as gryphons, giant eagles, etc… are harder to tame, harder to breed, more difficult to ride, and more dangerous. So many new Skyriders learn on hippogriffs, though there are far fewer of them. So Skyriders are chosen carefully.
