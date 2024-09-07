@@ -17,7 +17,7 @@ An Initiate's training culminates in an unchaperoned mission -- typically with o
 If the initiate fails in accomplishing their task and acquiting themselves in their role to the team, the sponsorship is evaluated, by a group of the sponsor's peers. If the instruction has been found lacking the Initiate is given a second chance, and usually a different sponsor -- though sponsorship is always voluntary, so there exists the potential that an Initiate will not have a sponsor ready to take them. In this event, they are put on what is basically a wait list. If the Initiate is found lacking, then they are summarily expelled from the League.
 
 ## A Feast to Remember:
-Upon returning home to Anbaerin, the crew of an expedition gather together for both debriefing and to tell the tales of the exploits and lives of their fallen comrades.
+Upon returning home to Anbaerin, the crew of an expedition gather together for both debriefing and to tell the tales of the exploits and lives of their comrades, especially exploits of the fallen.
 
 ## Campfire Stories:
 A bit tropey, and anyone whose been camping or shared a fire with someone would be familiar with this tradition, but because stories are so much of what being a part of the League is about, it makes sense that they would share their stories around a fire, as both a bonding exercise and a tradition.

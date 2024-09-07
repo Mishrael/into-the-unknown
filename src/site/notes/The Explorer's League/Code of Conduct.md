@@ -9,7 +9,7 @@
 
 2. Be Bold: Don't just step, leap! Boldly go where no one has gone before!
 
-3. Persevere: Exploration is a noble pursuit, filled with adversity! Whether is a cliff or a mountain of red tape, keep going there is always an end – and maybe keep some scissors for that pesky red tape.
+3. Persevere: Exploration is a noble pursuit, filled with adversity! Whether it is a cliff or a mountain of red tape, keep going there is always an end – and maybe keep some scissors for that pesky red tape.
 
 4. Document your Findings: If there's nothing brought back, no record, not even a scribbled note of what occurred, it's just another tall tale! Document, document, document! Or find someone to do it for you, and don't lose them!
 
